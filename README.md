@@ -1,0 +1,2 @@
+# notbutleast
+Schools are Scams
